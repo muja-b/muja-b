@@ -1,0 +1,5 @@
+- 👋 Hi, I’m muja
+- 👀 I’m interested in artificial intelligence
+- 🌱 I’m currently learning machine learning
+- 💞️ I’m looking to collaborate on any intersting project 
+- 📫 How to reach me discord Dimboi#9696
