@@ -1,2 +1,3 @@
-- 👋 Hi, I’m muja
-- 📫 How to reach me discord Dimboi#9696
+- 👋 Hi, I’m mujahed.
+- 📫 How to reach me discord Randomboi#9696
+- 
