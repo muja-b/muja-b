@@ -1,3 +1,1 @@
-- 👋 Hi, I’m mujahed.
-- 📫 How to reach me discord Randomboi#9696
-- 
+The struggle itself toward the heights is enough to fill a man's heart.
